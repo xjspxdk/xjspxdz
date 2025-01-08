@@ -1,12 +1,12 @@
 香蕉视频APP新地址|香蕉视频APP新网址|香蕉视频APP新入口
 
-香蕉视频APP新地址|香蕉视频APP新网址|香蕉视频APP新入口：https://91xk.pages.dev/a1 (点击打开，看完记得收藏）
+香蕉视频APP新地址|香蕉视频APP新网址|香蕉视频APP新入口：http://7kkd.com (点击打开，看完记得收藏）
 
-香蕉视频APP备用地址1：https://91xk.pages.dev/a2  (点击打开，看完记得收藏）
+香蕉视频APP备用地址1：http://7kkd.com  (点击打开，看完记得收藏）
 
-香蕉视频APP备用地址2：https://91xk.pages.dev/a3  (点击打开，看完记得收藏）
+香蕉视频APP备用地址2：http://2yye.com  (点击打开，看完记得收藏）
 
-香蕉视频APP备用地址3：https://91xk.pages.dev/a4  (点击打开，看完记得收藏）
+香蕉视频APP备用地址3：http://2yye.com (点击打开，看完记得收藏）
 
 
 
